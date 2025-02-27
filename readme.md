@@ -1,0 +1,1 @@
+## Hey i am shashi, i am starting to upload my coding, which i created in funny mood so if you want to use then u use and learn from this code. 
